@@ -1,4 +1,3 @@
-# 💫About Me :
 👋 Hi there, I'm Saurabh Sharma!
 
 🎓 Final-year B.Tech CSE student at **Bennett University**  
